@@ -1,4 +1,4 @@
-Oi, eu sou o Vini7, tenho 15 anos e sou estuante.
+Oi, eu sou o Vini7, tenho 15 anos e sou estudante do melhor professor (BRUNO)
 
 ![](https://media1.tenor.com/m/6IK22ph_bBEAAAAd/done-congrats.gif)
 
